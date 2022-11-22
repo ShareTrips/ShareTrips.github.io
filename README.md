@@ -1,1 +1,0 @@
-# ShareTrips.github.io
